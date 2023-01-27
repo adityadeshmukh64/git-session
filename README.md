@@ -1,1 +1,1 @@
-Deshmukh Lodu hain
+Deshmukh ko pakkad ke maaro
